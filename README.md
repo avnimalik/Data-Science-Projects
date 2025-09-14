@@ -8,5 +8,7 @@ A special thanks to all of the teammates that I worked with and learned from!
 
 
 Avni Malik
+
+
 MD Candidate, Class of 2026
 Virginia Commonwealth University, School of Medicine
