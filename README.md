@@ -7,11 +7,11 @@ Here I have collected the healthcare-related projects that I completed during my
 
 
 A special thanks to all of the teammates that I worked with and learned from!
-
-
-
-
-
+ 
+ 
+ 
+ 
+ 
 
 Avni Malik
 
